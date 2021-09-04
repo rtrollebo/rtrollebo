@@ -7,6 +7,8 @@
 
 📫 I can be reached at: http://linkedin.com/in/rtrollebo
 
-Some notes on topics of interest: [notes.brick.do](http://notes.brick.do).
+Additional information:
+* [synesis.brick.do](http://synesis.brick.do).
+* [trollebo.brick.do](http://trollebo.brick.do).
 
 
